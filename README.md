@@ -47,7 +47,7 @@
 ## 📬 Contact Information
 For verification or professional inquiries:
 - 📧 Email: [trankhang0990@gmail.com]
-- 💼 LinkedIn: [Your LinkedIn Profile]
+- 💼 LinkedIn: [https://www.linkedin.com/in/tranphukhang/]
 - 🌐 Portfolio: [Your Website]
 
 ## 🔗 Additional Information
